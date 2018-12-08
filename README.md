@@ -1,1 +1,0 @@
-# CHEKER-ALL-BARBA
